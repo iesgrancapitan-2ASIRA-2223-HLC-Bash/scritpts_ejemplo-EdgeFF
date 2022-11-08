@@ -1,1 +1,0 @@
-# scritpts_ejemplo-EdgeFF
